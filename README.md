@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Google
 - 📫 How to reach me ... On my ig or Linkedin
 - 😄 Pronouns: ... She/her
-- ⚡ Fun fact: ... I´m listening to music and playng some gammes or working -_-
+- ⚡ Fun fact: ... I´m listening to music and playng some games or working -_-
 
 <!---
 pumpkinbabydefaut/pumpkinbabydefaut is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
